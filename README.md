@@ -155,7 +155,7 @@
 2、无花果鲜品的副作用矫正药为斯日坎吉本醋糖浆，谢日比提日巴斯糖浆等。
 3、贫血及低血压者慎用无花果，可与罗汉果合用。
 ```
-<img src="http://p5.itc.cn/q_70/images03/20200731/3017366f9ae248f9a681f4f024adca82.jpeg" width="20%" height="20%"> 
+<img src="http://p5.itc.cn/q_70/images03/20200731/3017366f9ae248f9a681f4f024adca82.jpeg" width="50%" height="50%"> 
 
 # [鹰嘴豆](https://baike.baidu.com/item/%E9%B9%B0%E5%98%B4%E8%B1%86)
 ### 鹰嘴豆的功效与作用
